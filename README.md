@@ -1,1 +1,1 @@
-# PW-Sostenibilita-Ferrero
+# PW-Sostenibilità-Ferrero
